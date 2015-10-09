@@ -1,7 +1,7 @@
 #ABOUT ME..
 
 ##Name:
-Rawfur Rahmancd abou  
+Rawfur Rahman
 
 ##Email/s: 
   rawfurr1423@hstata.org
