@@ -1,11 +1,11 @@
 #ABOUT ME..
 
 ##Name:
-Rawfur Rahman
+Rawfur Rahmancd abou  
 
 ##Email/s: 
-*rawfurr1423@hstata.org
-*rawfurrahman@gmail.com
+  rawfurr1423@hstata.org
+  rawfurrahman@gmail.com
 
 ##school: 
 *[HSTAT](http://schools.nyc.gov/SchoolPortals/20/K485/default.htm)
@@ -19,8 +19,8 @@ Rawfur Rahman
 6. Spanish 5
 7. Physical education
 8. Physics:
-  *physics class (tuesday-firday)
-  *lab (monday)
+  physics class (tuesday-firday)
+  lab (monday)
 
 ##Personal:
 I like to play **video games** Because video games are fun. I don't ike playing mindless video games like _Call of Duty_,...
